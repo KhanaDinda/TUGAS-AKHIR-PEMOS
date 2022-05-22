@@ -12,7 +12,7 @@ Terima kasih dan semoga bermanfaat!
 
 4. Vanessa Kurniawan
 
-5. Khana Nadira Sastradjaja
+5. Khana Nadira Sastradjaja               26050120140166 Oseanografi B
 
 6. Bagas Priambodo
 
